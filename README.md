@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Bachelor in Computer Applications.
 - 💞️ I’m looking to collaborate on LinkedIn.
 - 📫 How to reach me +91 7558280185, dhruvnaik1611@gmail.com
-- 😄 Pronouns: He/She
+- 😄 Pronouns: Any
 - ⚡ Fun fact: My hobbies include reading & listening to music as well as gaming.
 
 <!---
